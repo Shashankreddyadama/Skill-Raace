@@ -1,1 +1,1 @@
-about my project
+about my project. Thank you.
